@@ -1,1 +1,1 @@
-I will be uploading heremy final project of this semester
+I will be uploading here my final project of this semester
